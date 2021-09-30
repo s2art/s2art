@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @s2art
-- 👀 I’m interested in photography, digital AND analogue, web design, ITC
+- 👀 I’m interested in photography, digital AND analogue, photobooks, web design, ITC
 - 🌱 I’m currently learning that living with covid is going to be a long protracted process *sigh*
 - 💞️ I’m looking to collaborate on anything that grabs me when I'm ready
 - 📫 How to reach me http://stunik.com/contact/
